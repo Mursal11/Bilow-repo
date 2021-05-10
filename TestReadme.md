@@ -1,5 +1,2 @@
 # Demo
-Some taer
-sssst
-JAMASER
-Kaaley!
+Kaaley manta iyo beri.!
