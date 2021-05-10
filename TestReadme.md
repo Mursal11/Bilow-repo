@@ -4,5 +4,4 @@ kljasera
 aserasera
 Wakan!\!
 uhjkl;
-aserawe
-END@!
+Keen manata
